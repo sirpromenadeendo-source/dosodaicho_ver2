@@ -1,1 +1,0 @@
-# dosodaicho_ver2
